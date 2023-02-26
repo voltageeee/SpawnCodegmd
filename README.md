@@ -1,5 +1,1 @@
-- 👋 Hi, I’m @SpawnCodegmd
-- 👀 I'm intersted in C#
-- 🌱 I'm currently making Emerald Projects
-- 💞️ I’m looking to collaborate on hentaiware | niggahook
-- 📫 How to reach me: SpawnCode#7991
+хахаах это че такое
